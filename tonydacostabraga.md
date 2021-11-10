@@ -15,7 +15,7 @@
 - Política;
 - Cultura dos Povos Antigos;
 - Ocultismo e Cabalá;
-- Língua Inglesa e Hebraico / Aramaico;
+- Língua Inglesa (Básico -> intermediário);
 
 
 
